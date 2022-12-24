@@ -36,7 +36,7 @@
 >* 管它配不配
 >* “我喜欢我望向别处时，他落在我身上的目光”         &nbsp; &nbsp; &nbsp; &nbsp; ***---2022年12月24日 晚***
 ><div align="center">
-><img src=https://user-images.githubusercontent.com/84625913/209436724-68f4392e-4e19-4802-8a66-5762915b6a48.jpg width=5% /> 
+><img src=https://user-images.githubusercontent.com/84625913/209437387-81e8ce85-e0e4-470c-b2f6-7ef1966d6021.jpg width=10% /> 
 ></div>
 
 ---
