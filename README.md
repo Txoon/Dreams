@@ -34,5 +34,11 @@
 >* 说好的不会骗她的
 >* 自卑请远离我，老子就要做她男朋友
 >* 管它配不配
->* “我喜欢我望向别处时，他落在我身上的目光”         &nbsp; &nbsp; &nbsp; &nbsp; ***---2022年12月24日 晚*** 
+>* “我喜欢我望向别处时，他落在我身上的目光”         &nbsp; &nbsp; &nbsp; &nbsp; ***---2022年12月24日 晚***
+><div align="center">
+><img src=https://user-images.githubusercontent.com/84625913/209436724-68f4392e-4e19-4802-8a66-5762915b6a48.jpg width=5% /> 
+></div>
+
 ---
+
+
