@@ -34,11 +34,16 @@
 >* 说好的不会骗她的
 >* 自卑请远离我，老子就要做她男朋友
 >* 管它配不配
->* “我喜欢我望向别处时，他落在我身上的目光”         &nbsp; &nbsp; &nbsp; &nbsp; ***---2022年12月24日 晚***
+>* “我喜欢我望向别处时，他望向我的目光”             &nbsp; &nbsp; &nbsp; &nbsp; ***---2022年12月24日 晚***
 ><div align="center">
 ><img src=https://user-images.githubusercontent.com/84625913/209437387-81e8ce85-e0e4-470c-b2f6-7ef1966d6021.jpg width=10% /> 
 ></div>
 
 ---
-
+>### 专注起来！Boy
+>* 真好，她告诉我她大学没有谈恋爱
+>* 专注做自己的事情
+>* 乱想只会让事情变糟 
+>* We will be ok, Before Sunrise.                   &nbsp; &nbsp; &nbsp; &nbsp; ***---2022年12月26日 晚***
+---
 
