@@ -78,6 +78,10 @@
 >* 少追逐完美主义                                                               &nbsp; &nbsp; &nbsp; &nbsp; ***---2023年2月25日 晚***
 ---
 >### 生活美好
->* 偶尔也需要放空一下~                                                           &nbsp; &nbsp; &nbsp; &nbsp; ***---2023年3月11日 早***
+>* 偶尔也需要放空一下~                                                          &nbsp; &nbsp; &nbsp; &nbsp; ***---2023年3月11日 早***
+---
+>### 做了再说
+>* Talk is cheap.
+>* Show me the code or somethings.                                             &nbsp; &nbsp; &nbsp; &nbsp; ***---2023年4月5日 早***
 ---
                                        
